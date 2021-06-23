@@ -1,2 +1,1 @@
-- 👋 Fintech lover.
-
+shinzou wo sasageyo
